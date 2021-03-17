@@ -1,4 +1,4 @@
-# ***STROGONOFF DE FRANGO***  :chicken
+# ***STROGONOFF DE FRANGO*** :chicken:
 
 ## **Ingredientes:**  
 + **500g** de peito de frango  
